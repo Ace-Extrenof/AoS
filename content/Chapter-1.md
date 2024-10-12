@@ -82,4 +82,12 @@ The boy got up and instantly started walking towards the room. The nurse tried t
 
 She was answered by a quick slap on her hand. The force was enough to make her hands red and she grasped her hand tightly.
 
-He made his way to the door where the guards tried to stop him. They were met with a fierce blow to the stomach. The raw strength of the punch 
+He made his way to the door where the guards tried to stop him. They were met with a fierce blow to the stomach. The raw strength of the punch made the soldiers feel like a bullet was being drilled into them. The next moment the were kneeling down clenching their stomach's.
+
+Then the boy collapsed. A instantaneous karate chop in his neck passed him out.
+
+"Sorry... he must've been a handful..." Jim said as he held the boy in his arms.
+
+---
+
+
