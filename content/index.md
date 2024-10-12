@@ -1,6 +1,7 @@
 ---
-title: Welcome to Quartz
+title: Thanks for coming here!
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+**Welcome to Ace of Spades!**
+
+To start reading go to [[Chapter-1]]
