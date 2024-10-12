@@ -90,4 +90,113 @@ Then the boy collapsed. A instantaneous karate chop in his neck passed him out.
 
 ---
 
+*That hurt...* I thought as I looked around, we were in a train. As soon as I had woken up I got flashbanged by the sky.
 
+*I guess that's what happens if you stay in the Platform for too long...*
+
+It had been four years since I had fallen into the Platform and now I was back up again, not that I was happy about it.
+
+*I got into a random fight with a random Extrenof, I go into coma and now I am suddenly in the E.P.O... Great...*. I complained in my mind as I examined my surroundings more. The guy that karate chopped me was sitting right next to me, a man and a woman were also in our compartment.
+
+We all looked at each other. Silence remained. We stared at each other. Silence remained. The train engine started howling, but the silence remained.
+
+"I adopted you by the way" the guy next to me said.
+
+Silence followed.
+
+"The fuck did you just say-"
+
+The man and the woman started laughing.
+
+"O-Oh my god! Second Lieutenant got rejected..." they both laughed at him.
+
+*Geez...*
+
+"What do you want?" I asked.
+
+"Nothing" he replied.
+
+The man and the woman were still laughing, they were practically rolling from their laughter now.
+
+"You can't say that with such a straight face!" they wheezed.
+
+The man next to me sighed. "Sorry that they are like that, I am Jim, Jim Watkins. I am your legal guardian now. You are my son now-"
+
+"I'd be damned if I was your son..."
+
+The man and woman started to wheeze more loudly.
+
+*I hate this already...*
+
+"I was in coma for twenty-six days right?"
+
+"?! Yes, how did you know?" Jim replied.
+
+"Just a hunch,"
+
+---
+
+*Just when I got a good lead things went south...* I sighed mentally. *This is bad...*
+
+I was in Jim's house now, which was just a training camp. I was apparently "adopted" by him now, not sure how I feel about that.There were other people the same age as me, two to be exact. I had to agree to join the E.P.O, it was the only shot of going back to the Platform I had, and trust me I put a lot of thought on to it. In the E.P.O your rank decided what you were allowed to do, The rank of Second Lieutenant was the minimum that was required to go into the PLatform.
+
+I needed to get back into the Platform before five years, if I managed to do things right I could get the rank of Second Lieutenent soon enough and escape from the above. Right now the plan was just to live *peacefully* with "Mr. Jim" and wait.
+
+I sighed as I flipped through the *E.P.O Soldiers Manual*
+
+*Nothing of great significance...* I thought.
+
+I went downstairs to look for Mr. Jim, the halls were unnecessarily long, they were clea enough to just ignore and live on, dusty enough to remind me of the halls filled with bounty hunters who were looking for jobs. The door of one room was open and lights flashed from that room and screams echoed throughout the hall. Someone was watching a horror movie.
+
+I went into the room and a boy with blonde hair and a girl with pure white hair were screaming. They took notice of me and looked at me. Still, silence commenced.
+
+"Do you guys have a gym or training room here?" I asked.
+
+"Y-yeah it's at the end of the hall..." the girl replied.
+
+"Thank you," I replied and went into the room at the end of the hall.
+
+*What the hell was that?* I entered the training room, or the so-called "training room" because there was nothing except 6 punching bags there
+
+*They call this a training room?* I thought as I went near the punching bag, I gave it a punch, something felt off. I punched every bag in the room.
+
+*They make punching bag out of cotton?* Almost all of the bags were made of cotton except the last one which was filled with sand.
+
+*Better than nothing I guess.* I started hitting the bag and thinking of the possible things I could do.
+
+
+Three hours passed. I was stopped by Mr. Jim, because blood started flowing out of my hand. I hit the punching bag a tad bit too much... I got scolded by him and then he made me the manager of the place till tomorrow as punishment, meaning I had to do all the cleaning, washing dishes and other stuff.
+
+*I'm bored again now...*
+
+"Why were you hitting the hard punching bag?" Shiroko asked me as she was applying bandage to my hand.
+
+The two other people with me were Jeremy Watkins and Shiroko Koneko. Jeremy was Mr. Jim's own son while Shiroko was adopted like me. 
+
+"Yeah dude, anyone hardly hit's that bag. I am surprised you even managed to hit it for that long..." Jeremy said as he touched different parts of my arm. "You have so much muscle man..."
+
+"I was bored." I replied.
+
+They looked at me with shock as if I had said something that violated their perception of the world.
+
+"You were bored?!" they said at the same time.
+
+"Yeah..." 
+
+"... It must've hard for you in the Anarchist Platform... I heard it's a really bad place..." she said.
+
+*You're feeling pity now? Hypocrite...*
+
+"Yeah, they don't even have cheese puffs there..." just as Jeremy said that he got hit with a chop on the head.
+
+"You shouldn't say that!" she had finished applying bandage.
+
+"Thanks, I guess..." I replied.
+
+"Ow! Seriously though, how is it like to live in the Anarchist Platform? Like your childhood-"
+
+"I don't know... I wasn't really born in the Platform-"
+
+"YOU WEREN'T?!" they shouted in chorus.
+
+*That was a bad idea...*
