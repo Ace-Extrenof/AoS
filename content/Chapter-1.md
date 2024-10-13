@@ -6,7 +6,7 @@ title: Chapter 1-Random Kid
 
 They all had one thing in common. None of them gave a shit about it.
 
-Everyone had the same expression plastered on their face, it said "Screw this shit! I wanna go back damnit!". Not the expression you would want to see on the faces of the people who should, or at least supposed to protect the masses.
+Everyone had the same expression plastered on their face, it said "Screw this shit! I wanna go back damnit!". Not the expression you would want to see on the faces of the people who should, or at least were supposed to protect the masses.
 
 Among them was a young man, with scars on his face which signified that this wasn't on his first trip to hell. He was Second Lieutenant Jim Watkins or "Icicle's" as people liked to call him. Clearly he was the only one who seemed to be serious about the things happening in the Platform.
 
