@@ -24,7 +24,7 @@ As Jim got down the train everyone followed him both reluctantly and hesitantly.
 
 "Apparently two people have initiated dominion in close proximity, they have had been fighting for three hours straight but it seems to have calmed down. We need to-"
 
-"Say no more..." Jim interrupted him and took out his gun from utility belt. The gun install turned fiery red and flames started coming out the guns body.
+"Say no more..." Jim interrupted him and took out his gun from utility belt. The gun instantly turned fiery red and flames started coming out the guns body.
 
 The next moment, Jim wasn't to be seen.
 
@@ -32,7 +32,7 @@ The next moment, Jim wasn't to be seen.
 
 ---
 
-Jim walked through the fog, his fiery gun illuminating the way, he saw battle marks along the ground. The sight of the ground told Jim the intensity of the battle taht had taken place. It was brutal.
+Jim walked through the fog, his fiery gun illuminating the way, he saw battle marks along the ground. The sight of the ground told Jim the intensity of the battle that had taken place. It was brutal.
 
 *Must have been one hell of a fight.* He thought.
 
@@ -138,7 +138,7 @@ The man and woman started to wheeze more loudly.
 
 *Just when I got a good lead things went south...* I sighed mentally. *This is bad...*
 
-I was in Jim's house now, which was just a training camp. I was apparently "adopted" by him now, not sure how I feel about that.There were other people the same age as me, two to be exact. I had to agree to join the E.P.O, it was the only shot of going back to the Platform I had, and trust me I put a lot of thought on to it. In the E.P.O your rank decided what you were allowed to do, The rank of Second Lieutenant was the minimum that was required to go into the PLatform.
+I was in Jim's house now, which was just a training camp. I was apparently "adopted" by him now, not sure how I feel about that. There were other people the same age as me, two to be exact. I had to agree to join the E.P.O, it was the only shot of going back to the Platform I had, and trust me I put a lot of thought on to it. In the E.P.O your rank decided what you were allowed to do, The rank of Second Lieutenant was the minimum threshold that was required to go into the Platform.
 
 I needed to get back into the Platform before five years, if I managed to do things right I could get the rank of Second Lieutenent soon enough and escape from the above. Right now the plan was just to live *peacefully* with "Mr. Jim" and wait.
 
@@ -146,7 +146,7 @@ I sighed as I flipped through the *E.P.O Soldiers Manual*
 
 *Nothing of great significance...* I thought.
 
-I went downstairs to look for Mr. Jim, the halls were unnecessarily long, they were clea enough to just ignore and live on, dusty enough to remind me of the halls filled with bounty hunters who were looking for jobs. The door of one room was open and lights flashed from that room and screams echoed throughout the hall. Someone was watching a horror movie.
+I went downstairs to look for Mr. Jim, the halls were unnecessarily long, they were clear enough to just ignore and live on, dusty enough to remind me of the halls filled with bounty hunters who were looking for jobs. The door of one room was open and lights flashed from that room and screams echoed throughout the hall. Someone was watching a horror movie.
 
 I went into the room and a boy with blonde hair and a girl with pure white hair were screaming. They took notice of me and looked at me. Still, silence commenced.
 
@@ -173,7 +173,7 @@ Three hours passed. I was stopped by Mr. Jim, because blood started flowing out 
 
 The two other people with me were Jeremy Watkins and Shiroko Koneko. Jeremy was Mr. Jim's own son while Shiroko was adopted like me. 
 
-"Yeah dude, anyone hardly hit's that bag. I am surprised you even managed to hit it for that long..." Jeremy said as he touched different parts of my arm. "You have so much muscle man..."
+"Yeah dude, anyone hardly hits that bag. I am surprised you even managed to hit it for that long..." Jeremy said as he touched different parts of my arm. "You have so much muscle man..."
 
 "I was bored." I replied.
 
@@ -183,13 +183,13 @@ They looked at me with shock as if I had said something that violated their perc
 
 "Yeah..." 
 
-"... It must've hard for you in the Anarchist Platform... I heard it's a really bad place..." she said.
+"... It must've been hard for you in the Anarchist Platform... I heard it's a really bad place..." she said.
 
 *You're feeling pity now? Hypocrite...*
 
 "Yeah, they don't even have cheese puffs there..." just as Jeremy said that he got hit with a chop on the head.
 
-"You shouldn't say that!" she had finished applying bandage.
+"You shouldn't say that!" she had already finished applying bandage.
 
 "Thanks, I guess..." I replied.
 
